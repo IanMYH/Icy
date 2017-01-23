@@ -1,6 +1,6 @@
-=============================
-Stipulations on Business Trip
-=============================
+============================
+Regulations on Business Trip
+============================
 
 
   **Employees’ application for business trip**
