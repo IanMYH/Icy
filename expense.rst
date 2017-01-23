@@ -5,20 +5,19 @@ Regulations on Business Trip
 
   **Employees’ application for business trip**
     
-* Apply in advance: one should fill in the Application for business trip form with a trip schedule attached to it，after approved by department manager or general manager and copied to deal with the Ministry of Personnel for the record，business travel is acceptable；
+* In advance: one should fill in the Application form of business trip with a trip schedule attached to it，together with an approval by the department manager or Eric. A copy should be sent to the HR for record；
 
-
-* Apply in emergency: one should consult the manager on the phone in advance, fill in the Application for business trip   form after the trip as reimbursement basis；
+* In emergency: one should phone Eric for approval in advance, and fill in the Application form of business trip for reimbursement after the trip；
 
 **Scope of reimbursement**
 
-* Vehicles cost such as planes,trains,cars；
-* Urban and extramural transportation costs  on the business trip；
+* Expenses on public transportation such as planes, trains, buses ；
+* Expenses on public transportation in and out of town；
 * Hotel expense；
 * Meal allowance；
-* Business entertainment；
+* Expenses on necessary business activities；
 
-**Individual Reimbursement Process**
+**Reimbursement Process**
 
 * Reimbursement policy 
     
